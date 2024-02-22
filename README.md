@@ -1,3 +1,3 @@
-Привет, я Андрей.
+I'm Andrey.
 
-Всё, что я умею делать в этой жизни — это дышать.
+All I can do in this life is breathe.
